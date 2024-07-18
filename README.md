@@ -11,7 +11,7 @@
 ENTJ
 
 ### 연락처
-010 2246 0974
+010 2246 09
 ejkim811004@gmail.com
 
 ### Languages and Tool
