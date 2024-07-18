@@ -1,4 +1,4 @@
-# 웹퍼블리셔 지망생 : kimeunjung
+# 웹퍼블리셔 지망생 : kim eun jung
 ## I aspire to become a prospective web publisher.
 깃허브 프로필 소개입니다.
 
